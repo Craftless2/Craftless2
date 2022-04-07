@@ -1,4 +1,4 @@
-### Hi there 👋
+### Unused account, go to https://github.com/Craftless instead
 
 <!--
 **Craftless2/Craftless2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
